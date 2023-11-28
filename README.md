@@ -19,7 +19,11 @@ This story was written for one type of person, one type of personality. For a wo
 ### ![](https://i.seadn.io/s/raw/files/ed3bb318870f531d628a37f4bf8295b1.png?auto=format&dpr=1&w=1000)
 
 # these women get back from the store
-### they just barge into the door and they come in really strong. My drink should be stronger than the way these girls break the air. What's the deal? BANG she sets something strang down on the table. Ouch the table moans in glee. He friends set down their drinks. The surfaces cry out for surface gaurds. Gaurds! Gaurds! Hurry! Hurry! NO OFF WITH THEIR, FIRE!
+### they just barge into the door and they come in really strong. My drink should be stronger than the way these girls break the air. What's the deal? BANG she sets something strang down on the table. Ouch the table moans in glee. He friends set down their drinks. The surfaces cry out for surface gaurds. Gaurds! Gaurds! Hurry! Hurry! NO OFF WITH THEIR, FIRE! Off with their heads. Off with their fire1 Off with their heads1 off head111
 
 # 150% added to the normal price
 ### they do all kinds of manipulations on the numbers to get them right where they feel like it. They never think about it again. It all gets abosrbed into the corprate image. The girls are drunk on sales. Let's go shopping turned into where's the money, no where's the time? There is no time. No time left. This sale is forever! nb
+
+# one girl's head just poped right off her shoulders and it starts act 2
+# Act 2
+## With her head still flying in the air. The prices were dropping at the shopping market down the way. And they were pulling prices down faster and faster down. Down this rabbit hole that was meant to take you down down down the road.
