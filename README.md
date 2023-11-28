@@ -111,3 +111,4 @@ The story unfolds as Seraphina grapples with her newfound existence, learning to
 
 ### The sequel...
 ### ending credits: a giant tag with a sale and a kitcken knife with red lipstick on it
+![](https://github.com/nathanielburman/horror-fiction-back-from-the-sale-part-x/blob/main/dream_TradingCard.jpg?raw=true)
