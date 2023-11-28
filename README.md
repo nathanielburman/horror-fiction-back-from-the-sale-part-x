@@ -102,3 +102,5 @@ The story unfolds as Seraphina grapples with her newfound existence, learning to
 
 # Act 4
 ## She hugs her family. And protected them. She stands there with her family knowing that she protected them and she disapears into the camera.
+
+# Call me Prices one more time and I'll Cut You!
