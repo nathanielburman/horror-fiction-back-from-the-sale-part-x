@@ -27,6 +27,8 @@ This story was written for one type of person, one type of personality. For a wo
 # one girl's head just poped right off her shoulders and it starts act 2
 # Act 2
 ## With her head still flying in the air. The prices were dropping at the shopping market down the way. And they were pulling prices down faster and faster down. Down this rabbit hole that was meant to take you down down down the road.
+## egirl B has a heart attack.
+## egirl C has a heart attack.
 
 # A Egirl in a cat cosplay is crawling on the floor in a not sexual manner which is reminescient of an image of a woman saving her life. Blood splatters across her face. Her lips blood red and stained.
 
