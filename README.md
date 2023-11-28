@@ -94,7 +94,7 @@ Suddenly, the room trembled, and the Mirror's surface rippled with an otherworld
 
 Seraphina died. A state of existence where the character's essence was tethered to the mirror did happen, forever bound to the reflections within. But death was forever in this realm.
 
-Death of Seraphina was this way for thousands of years. Sotries only of Serafinas death were told. Much like tohe stories of Jesus for 2000 years. Tales of Seraphina's death were told for thousands of years. Then something happened in death.
+Death of Seraphina was this way for thousands of years. Stories only of Serafinas death were told. Much like the stories of Jesus for 2000 years. Tales of Seraphina's death were told for thousands of years. Then something happened in death.
 
 ...
 
