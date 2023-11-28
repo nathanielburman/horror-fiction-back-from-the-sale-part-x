@@ -104,3 +104,8 @@ The story unfolds as Seraphina grapples with her newfound existence, learning to
 ## She hugs her family. And protected them. She stands there with her family knowing that she protected them and she disapears into the camera.
 
 # Call me Prices one more time and I'll Cut You!
+
+## At the end of the story you should imagine a person who is running a business at the end of the day and the sun is setting. The person's name is Prices. Dont' get in the way of the Price Cutter! Price Vs Price Cutter in a twist of fate for the blind. Who will win, and what will happen with the dames? Nobody knows because knowbody cares. Its a delusion to think that they got a real sale. I got a sale. Free, after the trigger warning. Call Me Later. Leave A Message.
+
+### The sequel...
+### ending credits: a giant tag with a sale and a kitcken knife with red lipstick on it
