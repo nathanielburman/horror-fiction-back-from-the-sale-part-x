@@ -78,5 +78,27 @@ In the car, with the AC running, and the sun outside scortching, Where there onc
 # Act 3
 ## Her phone in her hand. The image flashes her bank account balance. An imbalance ocurrrrs Whoa. Did you feel that? Her bank account shifted in time. But the people on the TV.  No. Not TV. I said, the people on the phone! Your not listening again! are you here right now? Hello! What?
 
+## Title: Echoes of Eternity
+
+In the mystical realm of Eldoria, where magic and reality intertwine, lived a young sorceress named Seraphina. Seraphina possessed an extraordinary gift – the ability to weave illusions that blurred the lines between life and death. Little did she know that her powers would lead her on a journey through the veil of existence itself.
+
+One fateful day, as Eldoria was enveloped in an otherworldly twilight, a powerful ancient artifact known as the Ephemeral Mirror was uncovered. Legend spoke of its ability to reflect the essence of one's mortality, revealing the deepest fears and dreams hidden within.
+
+Intrigued by the mirror's lore, Seraphina, accompanied by her loyal companion, a mystical cat named Luna, ventured into the heart of Eldoria to find it. Guided by cryptic whispers and shimmering illusions, she reached the Mirror's resting place within the Enchanted Grove.
+
+As Seraphina gazed into the Ephemeral Mirror, a surreal dance of lights and shadows unfolded. She saw herself in a myriad of alternate realities, each one depicting a different facet of her existence. In one reflection, she witnessed triumph and joy; in another, sorrow and despair.
+
+Suddenly, the room trembled, and the Mirror's surface rippled with an otherworldly energy. Seraphina found herself entwined in a luminous thread, her essence connecting with the reflections within the mirror. The boundary between life and death blurred as the Mirror extracted the very essence of her being.
+
+Seraphina died. A state of existence where the character's essence was tethered to the mirror did happen, forever bound to the reflections within. But death was forever in this realm.
+
+Death of Seraphina was this way for thousands of years. Sotries only of Serafinas death were told. Much like tohe stories of Jesus for 2000 years. Tales of Seraphina's death were told for thousands of years. Then something happened in death.
+
+...
+
+As Seraphina explored this ethereal realm, she encountered echoes of her own emotions and experiences. Joyful laughter and haunting whispers resonated, creating a surreal tapestry of her existence. Though she hadn't physically perished, Seraphina had transcended the conventional boundaries of life.
+
+The story unfolds as Seraphina grapples with her newfound existence, learning to navigate the echoes of eternity within the Ephemeral Mirror. The line between reality and illusion blurs, and she discovers that even in Death 1, the journey of self-discovery continues, offering glimpses into the profound mysteries of her own soul.
+
 # Act 4
 ## She hugs her family. And protected them. She stands there with her family knowing that she protected them and she disapears into the camera.
