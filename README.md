@@ -57,7 +57,9 @@ Egirl S: (laughs) We're the ultimate car karaoke crew. Someone should make a rea
 
 Egirl Z: (grins) "Egirls on the Go." I like the sound of that. Now, let's keep riding and vibing to the beats!
 
-# A Egirl in a cat cosplay is crawling on the floor in a not sexual manner which is reminescient of an image of a woman saving her life. Blood splatters across her face. Her lips blood red and stained.
+## Z powers up on a soul that was found wandering up the stairs to heaven. Wanding up and around the stairway to heaven is frounded upon by many scholars. 
+
+# A Egirl Z - in a cat cosplay is crawling on the floor in a not sexual manner which is reminescient of an image of a woman saving her life. Blood splatters across her face. Her lips blood red and stained.
 
 # Act 3
 ## Her phone in her hand. The image flashes her bank account balance. An imbalance ocurrrrs Whoa. Did you feel that? Her bank account shifted in time. But the people on the TV.  No. Not TV. I said, the people on the phone! Your not listening again! are you here right now? Hello! What?
