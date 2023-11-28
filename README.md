@@ -29,6 +29,8 @@ This story was written for one type of person, one type of personality. For a wo
 ## With her head still flying in the air. The prices were dropping at the shopping market down the way. And they were pulling prices down faster and faster down. Down this rabbit hole that was meant to take you down down down the road.
 ## egirl B has a heart attack.
 ## egirl C has a heart attack.
+## egirl D looks over at egirl E. Blood is all over D & E lips and legs.
+## more egirls are siting in the car parked outside in the summer heat. Scortching the car in the sun's heat.
 
 # A Egirl in a cat cosplay is crawling on the floor in a not sexual manner which is reminescient of an image of a woman saving her life. Blood splatters across her face. Her lips blood red and stained.
 
