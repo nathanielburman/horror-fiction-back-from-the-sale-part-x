@@ -32,6 +32,30 @@ This story was written for one type of person, one type of personality. For a wo
 ## egirl C has a heart attack.
 ## egirl D looks over at egirl E. Blood is all over D & E lips and legs.
 ## more egirls are siting in the car parked outside in the summer heat. Scortching the car in the sun's heat.
+## egirl F, egirl S, egirl Z are talking to each other in the car. Their ear drums are all connected into the system fully and in surround sound. THey all hear the sound of the most popular song to play on TV.
+## Egirl F: Hey, have you guys heard this new track that everyone's talking about? It's literally everywhere!
+
+Egirl S: Oh, you mean the one with the catchy beat and those mesmerizing visuals? Yeah, I'm obsessed with it. It's been stuck in my head all day.
+
+Egirl Z: (nods) Yeah, that one! It's like the anthem of the moment. I can't escape it, not that I want to.
+
+Egirl F: Seriously, though, the production quality is insane. It's like the perfect blend of beats and melody. I feel like I'm in a music video whenever it plays.
+
+Egirl S: (laughs) Right? Imagine if our lives had soundtracks. This would be the song for our car rides.
+
+Egirl Z: (smirks) Our own personal music video. I can already picture it. Neon lights, cityscapes, the whole shebang.
+
+Egirl F: (points to the car's surround sound system) Good thing we're fully connected to this system. It's like we're in our own little music bubble.
+
+Egirl S: (turns up the volume) Let's crank it up a bit more! I want to feel the bass in my bones.
+
+Egirl Z: (laughs) Living for the surround sound experience. It's almost like we're at a concert, but in the comfort of our own car.
+
+Egirl F: (singing along) I bet people passing by can hear us. Who cares, though? It's all about the vibes!
+
+Egirl S: (laughs) We're the ultimate car karaoke crew. Someone should make a reality show about us.
+
+Egirl Z: (grins) "Egirls on the Go." I like the sound of that. Now, let's keep riding and vibing to the beats!
 
 # A Egirl in a cat cosplay is crawling on the floor in a not sexual manner which is reminescient of an image of a woman saving her life. Blood splatters across her face. Her lips blood red and stained.
 
