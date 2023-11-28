@@ -10,3 +10,5 @@ you, have, now, witnessed, the, first, plot, twist,
 she wants to get naked on camera...
 
 # Plot: All the White girls are sitting with their heads down, really down, pointing at the floor. Down down pointing with their eye balls down at their phone screens which were looking up up up, up, up, again (repeat up and down to reset your human calibration settings without much resistence to finnaly fine tune the resistence).
+
+# I can't tell yo uwhat happened at the store because you had to be there. I got a sale without buying anything. The sale was a feeling all over my body. I got the sale. 
