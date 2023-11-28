@@ -11,7 +11,7 @@ she wants to get naked on camera...
 
 # Plot: All the White girls are sitting with their heads down, really down, pointing at the floor. Down down pointing with their eye balls down at their phone screens which were looking up up up, up, up, again (repeat up and down to reset your human calibration settings without much resistence to finally fine tune the resistence).
 
-# I can't tell you what happened at the store, because you had to be there. I got a sale without buying anything. The sale, was, a, feeling, all, over, my, body, . I got the sale. 
+# I can't tell you what happened at the store, because you had to be there. I got a sale without buying anything. The sale, was, a, feeling, all, over, my, body, . I got the sale. I got the . 
 
 This story was written for one type of person, one type of personality. For a woman, to be exact. Like a woman. But, for a woman. However, it was for a woman. Not like that, a woman. This is for a woman.
 
