@@ -90,6 +90,8 @@ As Seraphina gazed into the Ephemeral Mirror, a surreal dance of lights and shad
 
 Suddenly, the room trembled, and the Mirror's surface rippled with an otherworldly energy. Seraphina found herself entwined in a luminous thread, her essence connecting with the reflections within the mirror. The boundary between life and death blurred as the Mirror extracted the very essence of her being.
 
+...
+
 Seraphina died. A state of existence where the character's essence was tethered to the mirror did happen, forever bound to the reflections within. But death was forever in this realm.
 
 Death of Seraphina was this way for thousands of years. Sotries only of Serafinas death were told. Much like tohe stories of Jesus for 2000 years. Tales of Seraphina's death were told for thousands of years. Then something happened in death.
