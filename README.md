@@ -27,7 +27,7 @@ This story was written for one type of person, one type of personality. For a wo
 
 # one girl's head just poped right off her shoulders and it starts act 2
 # Act 2
-## With her head still flying in the air. The prices were dropping at the shopping market down the way. And they were pulling prices down faster and faster down. Down this rabbit hole that was meant to take you down down down the road.
+## With her head still flying in the air. The prices were dropping at the shopping market down the way. And they were pulling prices down faster and faster down. Down this rabbit hole that was meant to take you down down down the road. That this was meant to take you down a notch. Down, down, down. You can repeat down and up now to reset your calibration settings again. It is not resisting to resist in this manner.
 ## egirl B has a heart attack.
 ## egirl C has a heart attack.
 ## egirl D looks over at egirl E. Blood is all over D & E lips and legs.
