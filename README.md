@@ -57,6 +57,20 @@ Egirl S: (laughs) We're the ultimate car karaoke crew. Someone should make a rea
 
 Egirl Z: (grins) "Egirls on the Go." I like the sound of that. Now, let's keep riding and vibing to the beats!
 
+...
+
+Egirl F could really feel it in her bones. Egirl F feels it in her bones as her bones vibrate more and more to the bass in the music and ber bones vibrate until they explode and her whole body dissapears into a mist of blood with a light in the center that sparked out more than anything.
+
+...
+
+Egirl S was right in the middle of her kareoke singing when F went mental. The vibration of that was mental.
+
+...
+
+In the car, with the AC running, and the sun outside scortching, Where there once was the light of a spark, there was a dark nothing instead. It becomes a construct of an idea and it enters the soul and spirit of Egirl S and Egirl Z. The idea is that they will leave the car now, and run inside and tell thheir friends that Egirl F is dead.
+
+...
+
 ## Z powers up on a soul that was found wandering up the stairs to heaven. Wanding up and around the stairway to heaven is frounded upon by many scholars. 
 
 # A Egirl Z - in a cat cosplay is crawling on the floor in a not sexual manner which is reminescient of an image of a woman saving her life. Blood splatters across her face. Her lips blood red and stained.
