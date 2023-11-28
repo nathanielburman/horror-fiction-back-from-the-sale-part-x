@@ -32,3 +32,6 @@ This story was written for one type of person, one type of personality. For a wo
 
 # Act 3
 ## Her phone in her hand. The image flashes her bank account balance. An imbalance ocurrrrs Whoa. Did you feel that? Her bank account shifted in time. But the people on the TV.  No. Not TV. I said, the people on the phone! Your not listening again! are you here right now? Hello! What?
+
+# Act 4
+## She hugs her family. And protected them. She stands there with her family knowing that she protected them and she disapears into the camera.
