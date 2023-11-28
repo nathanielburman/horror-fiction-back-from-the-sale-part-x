@@ -17,3 +17,9 @@ This story was written for one type of person, one type of personality. For a wo
 
 # an image of a woman
 ### ![](https://i.seadn.io/s/raw/files/ed3bb318870f531d628a37f4bf8295b1.png?auto=format&dpr=1&w=1000)
+
+# these women get back from the store
+### they just barge into the door and they come in really strong. My drink should be stronger than the way these girls break the air. What's the deal? BANG she sets something strang down on the table. Ouch the table moans in glee. He friends set down their drinks. The surfaces cry out for surface gaurds. Gaurds! Gaurds! Hurry! Hurry! NO OFF WITH THEIR, FIRE!
+
+# 150% added to the normal price
+### they do all kinds of manipulations on the numbers to get them right where they feel like it. They never think about it again. It all gets abosrbed into the corprate image. The girls are drunk on sales. Let's go shopping turned into where's the money, no where's the time? There is no time. No time left. This sale is forever! nb
