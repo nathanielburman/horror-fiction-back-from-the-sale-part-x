@@ -41,7 +41,7 @@ This story was written for one type of person, one type of personality. For a wo
 <img src="https://github.com/nathanielburman/horror-fiction-back-from-the-sale-part-x/blob/main/35c0c9defa9bf4465fb0fbd66cd21529.jpg" width="300"></img>
 Egirl S: Oh, you mean the one with the catchy beat and those mesmerizing visuals? Yeah, I'm obsessed with it. It's been stuck in my head all day.
 
-<img src="https://github.com/nathanielburman/horror-fiction-back-from-the-sale-part-x/blob/main/i12342343mages.jpg" width="100%"></img>
+<img src="https://github.com/nathanielburman/horror-fiction-back-from-the-sale-part-x/blob/main/i12342343mages.jpg"></img>
 Egirl Z: (nods) Yeah, that one! It's like the anthem of the moment. I can't escape it, not that I want to.
 
 Egirl F: Seriously, though, the production quality is insane. It's like the perfect blend of beats and melody. I feel like I'm in a music video whenever it plays.
