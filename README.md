@@ -28,7 +28,7 @@ This story was written for one type of person, one type of personality. For a wo
 # 150% added to the normal price
 ### they do all kinds of manipulations on the numbers to get them right where they feel like it. They never think about it again. It all gets abosrbed into the corprate image. The girls are drunk on sales. Let's go shopping turned into where's the money, no where's the time? There is no time. No time left. This sale is forever! nb
 
-# one girl's head just poped right off her shoulders and it starts, act 2
+# Egirl A's head just poped right off her shoulders and it starts, act 2
 # ACT 2
 ## With her head still flying in the air. The prices were dropping at the shopping market down the way. And they were pulling prices down faster and faster down. Down this rabbit hole that was meant to take you down down down the road. That this was meant to take you down a notch. Down, down, down. You can repeat down and up now to reset your calibration settings again. It is not resisting to resist in this manner.
 ## egirl B has a heart attack.
