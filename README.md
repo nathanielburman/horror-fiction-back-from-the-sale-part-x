@@ -1,6 +1,6 @@
 # ACT 1
 <img src="https://pbs.twimg.com/media/Fw59WvaacAAuHR3.jpg" width="200" style="float: left;"> <--egirl D </img>
-<img src="https://pbs.twimg.com/media/Fw59WvaacAAuHR3.jpg" width="200" style="float: left;"> <--egirl E </img>
+<img src="https://github.com/nathanielburman/horror-fiction-back-from-the-sale-part-x/blob/main/c1da4cd63710c7a5020a505255db305d.jpg" width="200"> <--egirl E </img>
 # horror-fiction-back-from-the-sale-part-x
 horror fiction back from the future(tm) Back From The Sale 1999,  egirl D and E can time travel with their tech and its 2018.
 
