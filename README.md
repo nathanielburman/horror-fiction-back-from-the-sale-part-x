@@ -120,7 +120,7 @@ The story unfolds as Seraphina grapples with her newfound existence, learning to
 ### The sequel...
 ### ending credits: a giant tag with a sale and a kitcken knife with red lipstick on it
 <img src="https://github.com/nathanielburman/horror-fiction-back-from-the-sale-part-x/blob/main/dream_TradingCard.jpg?raw=true" width="200"></img>
-<img src="https://github.com/nathanielburman/horror-fiction-back-from-the-sale-part-x/blob/main/dreamssssadingCard.jpg" width="200"></img>
+<img src="https://github.com/nathanielburman/horror-fiction-back-from-the-sale-part-x/blob/main/dreamssssadingCard.jpg" width="300"></img>
 # If you looked at this image then this woman will get you in your dreams but she will not be like she was here. She will be different in your dreams than she was in your dreams tonight!
 
 # She is the Back From The Sale Cutter!
