@@ -1,6 +1,4 @@
 # ACT 1
-<img src="https://pbs.twimg.com/media/Fw59WvaacAAuHR3.jpg" width="200" style="float: left;"> <--egirl D </img>
-<img src="https://github.com/nathanielburman/horror-fiction-back-from-the-sale-part-x/blob/main/c1da4cd63710c7a5020a505255db305d.jpg" width="200"> <--egirl E </img>
 # horror-fiction-back-from-the-sale-part-x
 horror fiction back from the future(tm) Back From The Sale 1999,  egirl D and E can time travel with their tech and its 2018.
 
@@ -28,6 +26,9 @@ This story was written for one type of person, one type of personality. For a wo
 
 # 150% added to the normal price
 ### they do all kinds of manipulations on the numbers to get them right where they feel like it. They never think about it again. It all gets abosrbed into the corprate image. The girls are drunk on sales. Let's go shopping turned into where's the money, no where's the time? There is no time. No time left. This sale is forever! nb
+
+<img src="https://pbs.twimg.com/media/Fw59WvaacAAuHR3.jpg" width="200" style="float: left;"> <--egirl D </img>
+<img src="https://github.com/nathanielburman/horror-fiction-back-from-the-sale-part-x/blob/main/c1da4cd63710c7a5020a505255db305d.jpg" width="200"> <--egirl E </img>
 
 # Egirl A's head just poped right off her shoulders and it starts, act 2
 # ACT 2
