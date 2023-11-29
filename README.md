@@ -40,11 +40,8 @@ This story was written for one type of person, one type of personality. For a wo
 ## egirl F, egirl S, egirl Z are talking to each other in the car. Their ear drums are all connected into the system fully and in surround sound. THey all hear the sound of the most popular song to play on TV.
 ## Egirl F: Hey, have you guys heard this new track that everyone's talking about? It's literally everywhere!
 
-<img src="https://github.com/nathanielburman/horror-fiction-back-from-the-sale-part-x/blob/main/35c0c9defa9bf4465fb0fbd66cd21529.jpg" width="300"></img>
-<-- Egirl S
-
-<img src="https://github.com/nathanielburman/horror-fiction-back-from-the-sale-part-x/blob/main/i12342343mages.jpg"></img>
-<-- Egirl Z
+<img src="https://github.com/nathanielburman/horror-fiction-back-from-the-sale-part-x/blob/main/35c0c9defa9bf4465fb0fbd66cd21529.jpg" width="300"></img> <-- Egirl S
+<img src="https://github.com/nathanielburman/horror-fiction-back-from-the-sale-part-x/blob/main/i12342343mages.jpg"></img> <-- Egirl Z
 
 Egirl S: Oh, you mean the one with the catchy beat and those mesmerizing visuals? Yeah, I'm obsessed with it. It's been stuck in my head all day.
 
