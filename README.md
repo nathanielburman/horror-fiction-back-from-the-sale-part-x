@@ -1,5 +1,5 @@
 # ACT 1
-![](https://pbs.twimg.com/media/Fw59WvaacAAuHR3.jpg){width=200}
+<img src="https://pbs.twimg.com/media/Fw59WvaacAAuHR3.jpg" width="200"> </img>
 # horror-fiction-back-from-the-sale-part-x
 horror fiction back from the future(tm) Back From The Sale 1999, This egirl can time travel with her tech and its 2018.
 
