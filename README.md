@@ -11,6 +11,8 @@ you, have, now, witnessed, the, first, plot, twist,
 
 she wants to get naked on camera...
 
+<img src="https://github.com/nathanielburman/horror-fiction-back-from-the-sale-part-x/blob/main/Sale-Discount-Shoppping-Shop-Logo-by-Mansel-Brist-1.jpg" width="400"></img>
+
 # Plot: All the White girls are sitting with their heads down, really down, pointing at the floor. Down down pointing with their eye balls down at their phone screens which were looking up up up, up, up, again (repeat up and down to reset your human calibration settings without much resistence to finally fine tune the resistence).
 
 # I can't tell you what happened at the store, because you had to be there. I got a sale without buying anything. The sale, was, a, feeling, all, over, my, body, . I got the sale. I got the . 
