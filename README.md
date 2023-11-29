@@ -79,7 +79,7 @@ In the car, with the AC running, and the sun outside scortching, Where there onc
 
 ...
 
-## Z powers up on a soul that was found wandering up the stairs to heaven. Wanding up and around the stairway to heaven is frounded upon by many scholars. 
+## Z powers up on a soul that was found wandering up the stairs to heaven. Wanding up and around the stairway to heaven is frounded upon by many scholars. The soul wandard around the stairs for too long. Long ago it stayed there and never ventured up the stairs.
 
 # A Egirl Z - in a cat cosplay is crawling on the floor in a not sexual manner which is reminescient of an image of a woman saving her life. Blood splatters across her face. Her lips blood red and stained.
 
